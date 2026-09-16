@@ -1,0 +1,1 @@
+Hi, this is Jenny O AI Studios. I create short, life-inspired fictional stories based on how I’m feeling. And I bring them to life through AI. I also create original AI characters that help turn my ideas and imagination into something real. Welcome to Jenny O AI Studios, where creativity, storytelling, and AI come to life.
